@@ -1,3 +1,5 @@
 Hello I am Nkiruka Odu, 
-I will get a job 1 month to this program in Jesus name Amen. 
-I will put a lot of efforts to make sure that I succeed in this. 
+Coding is fun when you:  
+- truly Undertsand the problem you are trying to solve 
+- use effective approach to  solve those problems. 
+I will put great effort to make sure that I become a pro before the end of this bootcamp! 
